@@ -1,4 +1,6 @@
 ### Reticence Pay Vat of Being,Seeing Merrily/Ticket!Ticket!Ticket!Ticket!..See-a-Simile! 🍿
+## Hurray! i See Fiction Fact/Hurry Thought Else Conscious Trap
+#I : The Con Born/shuu..Jubilee..Hands-On
 
 <!--
 **ReticenceVat/ReticenceVat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
