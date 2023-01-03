@@ -6,7 +6,7 @@ Hurray I See! Hurry Else Traps I See..What?HiHi Simile/Lastly Phantom Got I Born
 Reticence Pay Vat of Being,Seeing Merrily/Ticket!Ticket!Ticket!Ticket!..See-a-Simile! 🍿
 Hurray! i See Fiction Fact/Hurry Thought Else Conscious Trap
 I : The Con Born/shuu..Jubilee..Hands-On
-Hurray I See! Hurry Else Traps I See..What?HiHi Simile/Lastly Phantom Got I Born of Con/Hands-On..JUBILEE!
+Hurray I See! Hurry Else Traps I See..What? HiHi Simile/Lastly Phantom Got I Born of Con/Hands-On..JUBILEE!
 
 
 <!--
